@@ -25,13 +25,13 @@ When things get heavy, when a craving hits, when an old habit calls, when your h
 
 ## What it brings into your day
 
-### 🌅 A day that makes sense
+### A day that makes sense
 Your tasks and events, one day at a time. Nothing forgotten, nothing overwhelming. Missed something yesterday? It's gently waiting for you today, not lost and not held against you.
 
-### 💪 Proof that you showed up
+### Proof that you showed up
 Plan your training, then do it. Every session you finish is one more promise kept to yourself. Courage isn't a feeling. It's what you do next.
 
-### 🫶 A safe place for the hard moments
+### A safe place for the hard moments
 - **Panic button.** Breathe with a guided rhythm and hold on until the ring fills. A craving usually passes within minutes, and you can outlast it.
 - **Clean-day counters.** Watch the days add up. A slip doesn't erase them: your best run stays yours.
 - **Your own plan for each temptation.** Name what pulls you down, and decide in a calm moment what you'll do in a hard one.
@@ -39,13 +39,13 @@ Plan your training, then do it. Every session you finish is one more promise kep
 - **Site shield (optional).** Keeps adult sites off your phone when you'd rather not have the choice.
 - **Help, always visible.** Emergency services (112) are one tap away.
 
-### 🔁 A Sunday look back
+### A Sunday look back
 Every Sunday EvyBuddy shows you your week: what you did, how often you showed up, where you held on. Small wins, finally visible.
 
-### ✨ Words that keep you going
+### Words that keep you going
 A short line under your greeting every day, written for the sport you love. 24 original lines per sport, none borrowed.
 
-### 📱 Always within reach
+### Always within reach
 Home-screen widgets for your day, your progress and a discreet panic button. Reminders that learn when you're usually around, so they show up when they can actually help.
 
 ## Yours, and only yours
